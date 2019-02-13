@@ -39,7 +39,7 @@ Again, a challenge map. Pick six opponents, put yourself in the center.
 
 ![screenshot](./SHC/Helms_Klamm.png)
 
-Yet another challenge map. [Here's the first video of a series](https://www.youtube.com/watch?v=kLYFC1rYv2c) of my victim having a good time with it.
+Yet another challenge map. [Here's the first video of a series](https://www.youtube.com/watch?v=zR5tDZEL8YM) of my victim having a good time with it.
 
 ### Im Nest der Ratte
 
